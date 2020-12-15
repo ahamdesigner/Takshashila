@@ -1,4 +1,4 @@
-# Takshashila
-No Certificates Issued
-# Latest Course
-Demagnetise
+# ताक्षशिल
+निदर्शनपत्त्र नही
+# अज्मन् संवादात्मकसंसाधन
+विचुम्बकित
